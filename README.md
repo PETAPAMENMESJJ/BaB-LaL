@@ -5,3 +5,12 @@ In Book and Befriend Love and Life LLMS are important just as English Language a
 Let's go, A-L. 
      A
 AI, Authority, AMEN.
+AI this latest trend in our wonderful new World 
+, has ability to accomplish so much, build and produce more methods, and make Humans excel in their different Professions and endeavors. you can reason out and find out that AI is so meaningful and useful.
+AI Artificial Intelligence.
+AI America and Israel.
+AI Above Intelligence (GOD'S Own AI)
+note, there are LLC. levels of link and connections in the 3 AIs, just as SEPSEP. Spiritual, Earth, People, Science, Engineer -ing, and Psychology have LLC.
+1.AI Artificial Intelligence is great trend, versatile and ready to assist Humans in their endeavors and profession. certainly, Human (s) who wants Humanity to get better, can't appreciate the benefits and usefulness of AI sufficiently, the solid evidence and remarkable testimonies of individuals and companies who integrate AI into their workflows and businesses are open. AI has dynamically increased the percentage of results these individuals and companies achieved.
+2. AI America and Israel. America and Israel are two Nations that distribute virtues from LORD GOD ALMIGHTY, The Righteous Judge of all Nations, to other Nations.note, every Nation belongs to GOD and under GOD ALMIGHTY, but there is exceptions, GOD ALMIGHTY deposits Divine VIPs to His unseen Nation (ZION) and sends to the World with two legs to deposit divine VIPs to AI America and Israel for distribution to other Nations of the World.
+3. AI Above Intelligence (GOD'S Own AI) undisputably, GOD'S Own AI is above other two AIs. and the fuel and empowerment they have are from GOD'S Own AI. Above Intelligence is LORD GOD ALMIGHTY and in this extraordinary generation Humans in BaB-LaL should stand in Awe of Him, because The LORD Himself is LOVE and LIFE and the supplier of both to Humans He created and put priceless Soul within. it's known in Heavenlies that booking and befriending Him is the wisest thing ever.
